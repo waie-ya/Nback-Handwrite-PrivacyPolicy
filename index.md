@@ -15,4 +15,4 @@
 ### お問い合わせ先
 何かご不明な点がございましたらこちらからお問い合わせください。
 
-waie.ya.main@gmail.com
+y.a.games.dev@gmail.com
